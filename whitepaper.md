@@ -10,7 +10,7 @@ Cryptocurrencies have evolved beyond mere financial instruments to cultural phen
 
 ## Origins and Background
 
-$PEW was launched by a prominent artist and founder, @darkfarms1, who is also behind the successful project $BOME. In a significant move to demonstrate commitment and create scarcity, 75% of the $PEW supply was burnt by @darkfarms1. This act has not only increased the token's value proposition but also reinforced trust within the community.
+$PEW was launched by a prominent BOME whale and DF1 arts collector, @bazingahappy. In a significant move to demonstrate commitment and create scarcity, 75% of the $PEW supply was sent to and burnt by @darkfarms1. This act has not only increased the token's value proposition but also reinforced trust within the community.
 
 ## Key Features
 
